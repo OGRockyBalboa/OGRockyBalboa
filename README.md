@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @OGRockyBalboa
+- 👀 I’m interested in language; JavaScript
+- 🌱 I’m currently learning C#/C++/SQL
+- 📫 Contact to me; ig;szvrgi
